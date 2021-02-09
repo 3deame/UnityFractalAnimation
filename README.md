@@ -1,0 +1,1 @@
+<a href="https://drive.google.com/uc?export=view&id=1z4nMgywspxZljh8SBGwBuDJjzzsbaFOT"><img src="https://drive.google.com/uc?export=view&id=1z4nMgywspxZljh8SBGwBuDJjzzsbaFOT" style="width: 640px; max-width: 100%; height: 360" title="Click to enlarge picture" />
